@@ -1,2 +1,2 @@
 # LISEZ-MOI !
-Cette section sera prochainement remplie !
+Cette rubrique sera prochainement remplie !
